@@ -2,3 +2,4 @@
 lista de participantes:
 
 Manuel Loiacono Vaccare: ghp_uE3sBKV5OeoFK.....shbDCbTHzWNpwu3vk0XFu5g
+Juan Bernardo Galardo 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
